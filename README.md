@@ -1,0 +1,1 @@
+# Analyzing-the-Impact-of-Movie-Franchises-on-Box-Office-Success
